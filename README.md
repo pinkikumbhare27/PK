@@ -9,5 +9,5 @@ How to reach me: Drop a mail to pinkikumbhare27@gmail.com
 
 Pronouns: She/Her
 
-### Connect with Me for Hiring: https://www.linkedin.com/in/pinki-kumbhare-314401179
+### Connect With Me for Hiring: https://www.linkedin.com/in/pinki-kumbhare-314401179
 
