@@ -1,5 +1,4 @@
-# pinkikumbhare27
-Hi, I’m @Pinki Kumbhare Aspiring Data Analyst
+### Hi, I’m @Pinki Kumbhare Aspiring Data Analyst
 I’m currently/actively looking for a job in Data Analytics
 
 WordPress professional transitioning to Data Analytics | Excel, SQL, Power BI | Analytical Problem-Solving.
@@ -11,5 +10,4 @@ How to reach me: Drop a mail to pinkikumbhare27@gmail.com
 Pronouns: She/Her
 
 ### Connect with Me for Hiring: https://www.linkedin.com/in/pinki-kumbhare-314401179
-
 
