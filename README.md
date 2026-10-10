@@ -1,4 +1,4 @@
-### Hi, I’m @Pinki Kumbhare Aspiring Data Analyst
+## Hi, I’m @Pinki Kumbhare Aspiring Data Analyst
 I’m currently/actively looking for a job in Data Analytics
 
 WordPress professional transitioning to Data Analytics | Excel, SQL, Power BI | Analytical Problem-Solving.
