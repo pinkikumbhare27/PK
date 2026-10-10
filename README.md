@@ -13,3 +13,6 @@ Pronouns: She/Her
 
 Linkedin: https://www.linkedin.com/in/pinki-kumbhare-314401179
 
+#### Languages and Tools
+Excel, SQL, Power BI, Python, PostgreSQL, Microsoft Word, Microsoft Office,Microsoft Excel, Matplotlib, Pandas, NumPy, AI
+
